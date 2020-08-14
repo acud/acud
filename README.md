@@ -1,4 +1,1 @@
-Half martian, half man, `acud` was conceived in a belly of an indicted whale some quarter century ago, when a small meteorite carrying parafoil shaped elfs from mars struck the earth and crash landed in the Indianapolis ocean.
-Growing up in the wild underwater savanna, he often listened to green dolphins singing, and watched carnivore plankton as they prayed on nuclear soviet submarines.
-He started playing the organ when he was just 5 years old, serving time as a young alter boy at the underwater church of Atlantis after accidentally running over a trojan horse with his nuclear-fission drived riksha. 
-When he was 18 years old, he started working in the neighbourhood’s grill-house, however two days later was hospitalized due to severe burns on his fins, causing deranged psycho-surgons to remove his fins and plant them as his human form ears. since then he has been listening to underwater electro mechanical music, and loves DJing deep aquatic house music, iceland techno, arctic dubstep and pacific tech-house.
+<CODE/>
