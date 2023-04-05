@@ -5,7 +5,7 @@ M: You can, but what purpose does it serve? If you are earnest, you will find th
 
 ======================
 
-Q: We hear of progress in our spritual endeavors. What kind of progress do you have in mind?
+Q: We hear of progress in our spiritual endeavors. What kind of progress do you have in mind?
 M: When you go beyond progress, you will know what is progress.
 Q: What makes us progress?
 M: Silence is the main factor. In peace and silence you grow.
