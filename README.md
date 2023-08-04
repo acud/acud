@@ -1,3 +1,7 @@
+“Foregoing self, the universe grows I.” — Sir Edwin Arnold
+
+=======
+
 Q: What is the cause of the urge to roam about?
 
 M: There is no cause. You merely dream that you roam about. In a few years your stay in India will appear as a dream to you. You will dream some other dream at that time. Do realise that it is not you who moves from dream to dream, but the dreams flow before you and you are the immutable witness. No happening affects your real being - this is the absolte truth.
