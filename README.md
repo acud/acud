@@ -1,3 +1,19 @@
+
+=======
+
+"Unfortunately, claiming victim status does not itself bring sound ethical choices. Stalin and Hitler both claimed throughout their political careers to be victims. They persuaded millions of other people that they, too, were victims: of an international capitalist or Jewish conspiracy. During the German invasion of Poland, a German soldier believed that the death grimace of a Pole proved that Poles irrationally hated Germans. During the famine, a Ukrainian communist found himself beleaguered by the corpses of the starved at his doorstep. They both portrayed themselves as victims. No major war or act of mass killing in the twentieth century began without the aggressors or perpetrators first claiming innocence and victimhood. In the twenty-first century, we see a second wave of aggressive wars with victim claims, in which leaders not only present their peoples as victims but make explicit reference to the mass murders of the twentieth century. The human capacity for subjective victimhood is apparently limitless, and people who believe that they are victims can be motivated to perform acts of great violence. The Austrian policeman shooting babies at Mahileu imagined what the Soviets would do to his children.
+The victims were people; a true identification with them would involve grasping their lives rather than grasping at their deaths. By definition the victims are dead, and unable to defend themselves from the use that others make of their deaths. It is easy to sanctify policies or identities by the deaths of the victims. It is less appealing, but morally more urgent, to understand the actions of the perpetrators. The moral danger, after all, is never that one might become a victim but that one might be a perpetrator or a bystander. It is tempting to say that a Nazi murderer is beyond the pale of understanding. Outstanding politicians and intellectuals—for example, Edvard Beneš and Ilya Ehrenburg—yielded to this temptation during the war. The Czechoslovak president and the Soviet-Jewish writer were justifying revenge upon the Germans as such. People who called others subhuman were themselves subhuman. Yet to deny a human being his human character is to render ethics impossible.
+To yield to this temptation, to find other people to be inhuman, is to take a step toward, not away from, the Nazi position. To find other people incomprehensible is to abandon the search for understanding, and thus to abandon history."
+"Bloodlands", Timothy Snyder
+
+=========
+
+"Our contemporary culture of commemoration takes for granted that memory prevents murder. If people died in such large numbers, it is tempting to think, they must have died for something of transcendent value, which can be revealed, developed, and preserved in the right sort of political remembrance. The transcendent then turns out to be the national. The millions of victims must have died so that the Soviet Union could win a Great Patriotic War, or America a good war. Europe had to learn its pacifist lesson, Poland had to have its legend of freedom, Ukraine had to have its heroes, Belarus had to prove its virtue, Jews had to fulfill a Zionist destiny. Yet all of these later rationalizations, though they convey important truths about national politics and national psychologies, have little to do with memory as such. The dead are remembered, but the dead do not remember. Someone else had the power, and someone else decided how they died. Later on, someone else still decides why. When meaning is drawn from killing, the risk is that more killing would bring more meaning."
+
+"Bloodlands", Timothy Snyder
+
+=====
+
 ‘A sure cure for seasickness is to sit under a tree.’ - Spike Milligan
 
 =========
