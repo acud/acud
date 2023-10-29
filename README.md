@@ -1,3 +1,14 @@
+``` The One remains, the many change and pass;
+Heaven’s light forever shines, Earth’s shadows fly;
+Life, like a dome of many-coloured glass,
+Stains the white radiance of Eternity,
+Until Death tramples it to fragments.—Die,
+If thou wouldst be with that which thou dost seek!
+Follow where all is fled!—Rome’s azure sky,
+Flowers, ruins, statues, music, words are weak
+The glory they transfuse with fitting truth to speak.
+```
+― Percy Bysshe Shelley, Adonais
 
 =======
 
